@@ -1,5 +1,5 @@
 *** fiktive Geschichte. ***
-** am besten im *RAW* klesen **
+** am besten im *RAW* lesen **
 
 
 Auf der Flucht.
@@ -11,14 +11,14 @@ Sei es übers Mittelmeer, durch über Ungarn oder ganz-offiziell also Tourist im
 Zu viele Bomben, zu viel Krieg. Wer soll da seine Kinder gross kriegen.
 Wer soll das nur überleben.
 
-Aber die Europäer wollen nicht. Zu viele, zu schell, und nicht immer nur die braven Leute, die nur Leben wollen - nen kleinen Job, etwas Geld - halt was man so zum Leben braucht. Und Familie sein. 
+Aber die Europäer wollen nicht so recht. Zu viele, zu schell, und _nicht immer_ nur die braven Leute, die nur Leben wollen - nen kleinen Job, etwas Geld - halt was man so zum Leben braucht. Familie sein. 
 
 
 Bis heute.
 
 
 Thiange, Belgien.
-Ein gewöhnlicher Arbeitstag. Mal wieder ein paar Demonstranten verjagt, Mittagpause, wieder so ein doofer Probealarm. click-und-weg. Die von der Aufsicht nerven...
+Ein gewöhnlicher Arbeitstag. Mal wieder ein paar Demonstranten verjagt, Mittagpause, wieder so ein doofer Probealarm. Click-und-weg. Die von der Aufsicht nerven...
 Aber was ist das ... Alarm ist jetzt zwar ruhig, aber eben nicht aus. Haben wir nicht so oft... hat wohl wieder ne Ratte an den Kabeln rumgenagt. Ticket für die Nachtschicht *hehe*...
 
 Am Anfang war es nur ein kleines Pfeifen. Ähnlich das der Demonstranten... oder ?
@@ -36,7 +36,7 @@ China... zumindest dahin will wohl die Suppe - ähm - der geschmolzene Kern, wen
 
 24 Stunden später.
 das Ding ist wohl durch, es brodelt und zischt. Wird wohl bald mal Grundwasser erreichen. 
-Der knall war noch in Aachen zu hören. Die Dampfwolke wohl zu sehen. Hat wohl aber niemand. Jeder, der auf 3 zählen konnte, war aber schon auf dem Weg nach Hause. Kinder, Frau einpacken, schnell ein paar Sachen in den Koffer geworfen, Bargeld und das gute Silberbesteck von Oma auch. Und ab auf die Autobahn, ab nach Süden - vor den andern, sollen die im Stau stehen.
+Der knall war noch in Aachen zu hören. Die Dampfwolke wohl zu sehen. Hat wohl aber niemand. Jeder, der bis 3 zählen konnte, war aber schon auf dem Weg nach Hause. Kinder, Frau einpacken, schnell ein paar Sachen in den Koffer geworfen, Bargeld und das gute Silberbesteck von Oma auch. Und ab auf die Autobahn, ab nach Süden - vor den anderen, sollen die im Stau stehen.
 
 Erst, als Bonn greifbar wird, die erste Nachrichten im Radio. Keine Panik, erstmal Türen und Fenster zu, und Jodtabeletten breit halten. Also ob das helfen wird. Ab Mannheim wird es leerer im Tank. Nächste Raststätte. Voll tanken, so lange noch was da ist. Beim bezahlen wirds schon schwierig, die Karte akzeptiert er erst beim 5ten mal. Schnell noch mehr Bargeld am Automaten. Dauert alles ewig.
 
@@ -49,9 +49,9 @@ Die Wolke kommt wohl bis Venedig runter. Und hier ist Regen angesagt. Lecker. Am
 
 Der Segelschein vom letzten Urlaub ist wohl doch zu was gut. Zumindest eine Kompas lesen und Wasser schöpfen. Eigentlich viel zu viel Wasser für so ein Boot. 27 Stunden mit ner Fähre waren das damals im Urlaub 2008. 48 Stunden Später rettet uns ein griechischer Fischer. Das Boot säuft ab, Treibstoff alle - Lebensmittel auch.
 
-Nach 7 Tagen in einem Flüchtlings-kamp - zumindest war das früher mal eines - nur noch weg. Es gibt nichts. Alle überfordert. Griechenland nun wirklich Pleite; Nun gut, Platz drei hinter Belgien und Deutschland. Sofern es dort noch sowas wie Zivilisation gibt. Dann kam das Militär; Alle weg. Geht, jetzt. Dort drüben gibt es noch Boote. Die 12-jährige Tochter seit Tagen nicht mehr gesehen. Verschwunden, nur gerüchte. Die Maschinenpistole, die zum tschüssi noch ein paar Leuchspur-Patronen verfeuert sieht man das made-in-germany an. Stolz geht aber anders...
+Nach 7 Tagen in einem Flüchtlings-kamp - zumindest war das früher mal eines - nur noch weg. Es gibt nichts. Alle überfordert. Griechenland nun wirklich Pleite; Nun gut, Platz drei hinter Belgien und Deutschland. Sofern es dort noch sowas wie Zivilisation gibt. Dann kam das Militär; Alle weg. Geht, jetzt. Dort drüben gibt es noch Boote. Die 12-jährige Tochter seit Tagen nicht mehr gesehen. Verschwunden, nur gerüchte. Die Maschinenpistole, die zum tschüssi noch ein paar Leuchspur-Patronen verfeuert sieht man das made-in-germany an. Stolz geht anders...
 
-2 Tage später wieder Land. Keine Ahnung wo wir sind. Nur müde und kaputt. Es ist warm. Und ein einsames Schild: 
+2 Tage später, nach zick-zack abgewimmel divereser Küstenwachen -- wieder Land. Keine Ahnung wo wir sind. Nur müde und kaputt. Es ist warm. Durst. Hunger. Und ein einsames Schild: 
 
 Aleppo: 160 km.
 
