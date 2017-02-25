@@ -58,5 +58,5 @@ Aleppo: 160 km.
 
 
 *** CC Attribution-NonCommercial-ShareAlike 4.0 International ***
-** ka7 @ github.com **
+** ka7 / github.com **
 
