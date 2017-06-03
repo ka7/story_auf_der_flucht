@@ -38,4 +38,7 @@ man konnte sich einfach ausprobieren - verhungern muss keiner. fehlende absicher
 klar, auch dieses system war fragil. bürger konnten überwacht werden, berechtigungen entzogen. da aber alle davon provitierten, war das problem nicht gross. Alle waren zufrieden - die, die versorgt waren, und die reichen die nicht von der hungernden, frierenden meute auf der strasse zerissen werden.
 
 
-
+DISCLAIMER:
+hierbei handelt es sich um eine rein-fiktionale idee.
+Sie mag gute punkte enthalten - oder das komplette gegenteil.
+sieh marx, das kapial: nette idee, verherende auswirkung.
